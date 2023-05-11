@@ -1,0 +1,6 @@
+- 👋 I am Maryam Nazeran, Master of Graphic Design, creative and enthusiastic person.
+- 🌱 I always like to create something on my own which is helpful for others.
+- 💞️ I help convert a vision and an idea into meaningful and useful products.
+- 👀 Having a sharp eye for product evolution helps me prioritize tasks, iterate fast and deliver faster.
+- 🛫 I am working at Barman international transport company in the Mashhad, Iran
+- 💻 I have been building noteworthy UX/UI designs and websites for years, which comply with the latest design trends.
